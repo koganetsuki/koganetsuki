@@ -1,4 +1,4 @@
-## y. kogane
+## *Yersinia kogane*
 
 I'm Gabriel, also known as 'kogane', 'kobreq', 'aghbi' or 'steinbach'. I'm from Brazil :brazil:, currently studying systems analysis and development at the Federal Institute of Parana (IFPR). 
 
